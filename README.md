@@ -2,7 +2,7 @@
 
 <br>
 
-### <div align="center"> 𝕀 𝕝𝕠𝕧𝕖 𝔹𝕀ℤ𝔼ℕ𝕋ℝ𝕆 <div>
+### <div align="center"> 𝔹𝕀ℤ𝔼ℕ𝕋ℝ𝕆 <div>
 
 <br>
 <br>
